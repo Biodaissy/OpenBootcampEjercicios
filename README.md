@@ -1,1 +1,1 @@
-Proceso de aprendizaje en OpenBootcamp. Abril 2023.
+Proceso de aprendizaje en OpenBootcamp. Inicio en abril 2023.
